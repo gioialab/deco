@@ -1,0 +1,2 @@
+# deco
+Regolamento DE.CO.
